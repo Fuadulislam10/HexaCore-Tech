@@ -15,8 +15,8 @@ HexaCore Tech offers high-quality cybersecurity services, including penetration 
 - Freelancing (Design / Development / etc.)
 
 ## 📫 Contact
-- 📧 Email: hackerpoint487@gmail.com  
-- 📞 Phone: +880 1621839832  
+- 📧 Email: h*************@gmail.com  
+- 📞 Phone: +880 16*********2  
 - 📍 Address: Bandarban, Chittagong, Bangladesh
 
 ## 🌍 Social Links
